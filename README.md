@@ -1,0 +1,1 @@
+# 8sinif-fen-bilimleri-tamamlama-testi-32
